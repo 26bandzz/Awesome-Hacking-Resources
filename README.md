@@ -1,3 +1,4 @@
+so one mroe thing about hacking this is not no eazy thing u have to grauted school to able to hack and be good at it u just cant be duma dn just but hacks off of poeple u got to be smaret not dum like wth is wrong with you like bruh  com on 
 <h1 align="center">
  	<br>
  	  <img width="200" src="https://github.com/sindresorhus/awesome/raw/main/media/logo.svg" alt="awesome">
